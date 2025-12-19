@@ -9,9 +9,10 @@
 
 
 
-𝙃𝙞𝙙𝙚 & 𝙎𝙚𝙚𝙠 ! : 👑
+𝙁𝙞𝙣𝙙 𝙏𝙝𝙚 𝙎𝙠𝙞𝙣 ! : 👑 ( i lost one of photos )
 
-<img width="150" height="150" alt="Untitled607_20250915135515" src="https://github.com/user-attachments/assets/910fbdd9-e247-4ce4-8cb0-8c43dc3cb36b" />
+<img width="150" height="150" alt="Untitled607_20251219193226" src="https://github.com/user-attachments/assets/c4e26c85-ad94-4bda-8452-537a700495b8" />
+
 
 
 
