@@ -1,4 +1,4 @@
-## : DAVI'S / PRISM'S WINNER LIST OF GAMES ! , ^0^
+## : Davi's Winner List's of Games !
 
 𝙁𝙖𝙨𝙝𝙞𝙤𝙣 𝙍𝙤𝙪𝙡𝙚𝙩𝙩𝙚 ! : 👑
 
@@ -10,6 +10,10 @@
 
 
 𝙁𝙞𝙣𝙙 𝙏𝙝𝙚 𝙎𝙠𝙞𝙣 ! : 👑 ( i lost one of the photos )
+
+【 Employee(s) - - > [Copperrighttt](https://github.com/Copperrighttt) 】 📃
+
+【 The Og First Place - - > [avenchurine](https://github.com/avenchurine) 】 🏆
 
 <img width="150" height="150" alt="Untitled607_20251219193226" src="https://github.com/user-attachments/assets/c4e26c85-ad94-4bda-8452-537a700495b8" />
 
