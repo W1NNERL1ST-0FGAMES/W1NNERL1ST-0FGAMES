@@ -15,7 +15,6 @@
 
 【 The Og First Place - - > [avenchurine](https://github.com/avenchurine) 】 🏆
 
-<img width="150" height="150" alt="Untitled607_20251219193226" src="https://github.com/user-attachments/assets/c4e26c85-ad94-4bda-8452-537a700495b8" /><img width="150" height="150" alt="Untitled607_20251227143305" src="https://github.com/user-attachments/assets/696dc096-af26-4469-a803-f4395215c1a0" />
 
 
 
