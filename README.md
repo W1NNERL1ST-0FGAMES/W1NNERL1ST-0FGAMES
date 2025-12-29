@@ -9,7 +9,7 @@
 
 
 
-𝙁𝙞𝙣𝙙 𝙏𝙝𝙚 𝙎𝙠𝙞𝙣 ! : 👑 ( i lost one of the photos )
+𝙁𝙞𝙣𝙙 𝙏𝙝𝙚 𝙎𝙠𝙞𝙣 ! : 👑
 
 【 Employee(s) - - > [Copperrighttt](https://github.com/Copperrighttt) 】 📃
 
